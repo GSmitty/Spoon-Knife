@@ -1,0 +1,1 @@
+I think that a blessed repository is an ideal work environment for me, as I think that any project that is of high enough level of interest for me would likely need a very large and deep hierarchical structure. I'm interested in music production, but past that point, video games and just general useful software I could see being interesting. I'm not too picky about this project. 
